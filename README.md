@@ -8,6 +8,8 @@ I am a cybersecurity enthusiast, specializing in penetration testing and ethical
 
 ## Latest Posts
 
+Coming soon
+
 ## Contact Me
 
 For collaborations, questions, or just to chat, feel free to reach out:
